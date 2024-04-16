@@ -1,0 +1,1 @@
+# SeznamN-kupu
